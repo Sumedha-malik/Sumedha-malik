@@ -10,4 +10,4 @@ My interests lie within the field of Data Analytics, with a focus on using data 
 - **Education**
 - **Gender Inequality**
 
-I am always excited to explore new opportunities where I can combine my technical skills and passion for social good. Feel free to connect with me on [LinkedIn](https://www.linkedin.com/)!
+I am always excited to explore new opportunities where I can combine my technical skills and passion for social good. Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/sumedhamalikk/)!
